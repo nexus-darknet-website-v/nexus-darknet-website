@@ -36,4 +36,6 @@ Since its establishment, Nexus Darknet Market has built a solid reputation based
 <a href="http://nexusxsx6orlzngdmebxoglwk6xm7ceglmljaujxqgbwyrsobm6gt6ad.onion"><img src="/thumbnails/temp.webp" style="max-width: 100%;"></a>
 <a href="http://nexusxsx6orlzngdmebxoglwk6xm7ceglmljaujxqgbwyrsobm6gt6ad.onion"><img src="/thumbnails/idle.webp" style="max-width: 100%;"></a>
 
-Update:  14.09.2025 Fixed dead link
+
+
+Update:  Thursday 18 September 2025
